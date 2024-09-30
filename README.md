@@ -16,5 +16,5 @@
 ### 🎉 ¿Qué esperas?
 Inscríbete ahora, reúne a tu equipo y demuestra lo que puedes hacer. ¡No es solo sobre ganar, es sobre crear algo genial juntos! 🙌
 
-Para más info y registro, visita: [Añadir enlace aquí] 🌐.
+Para más info y registro, visita: [Formulario de Inscripción](https://docs.google.com/forms/d/e/1FAIpQLScpJI5O85D6ixdwE-t8eG-A0p42V5jrJM8FoGm5zPtrIC_pqA/viewform?usp=sf_link)
 
